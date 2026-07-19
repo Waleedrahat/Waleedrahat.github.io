@@ -1,2 +1,0 @@
-# Waleedrahat.github.io
-Portfolio
